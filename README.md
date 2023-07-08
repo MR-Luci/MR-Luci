@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MR-Luci
-- 👀 I’m interested in VideoGames, Movies, Hacking
+- 👀 I’m interested in VideoGames, Movies, Anime, Hacking
 - 🌱 I’m currently learning Cyber Security 
 - 💞️ I’m looking to collaborate on Partner
 - 📫 How to reach me mr.nobodyandreson@gmail.com && +1(737) 238 7624 {only whatsapp}
